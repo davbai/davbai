@@ -1,0 +1,8 @@
+name: David Bai
+markdown: redcarpet
+pygments: true
+
+domain: davbai.com
+analytics:
+    google:
+        tracking_id: UA-46959142-1
