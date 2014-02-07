@@ -5,11 +5,11 @@ title:  "On Building a Team"
 
 Daniel Wood, [The Bleacher Report](http://bleacherreport.com/articles/1165320-2012-nfl-draft-grades-power-ranking-teams-that-failed-on-draft-day) (2012):
 
-> After one of the worst picks in the first round I can ever remember, the Seattle Seahawks didn't draft any positions of need or draft for the future.
+*After one of the worst picks in the first round I can ever remember, the Seattle Seahawks didn't draft any positions of need or draft for the future.*
 
-> Pete Carroll is proving why he didn’t make it in the NFL the first time. Not only was Bruce Irvin a reach at No. 15, the Seahawks proved they were oblivious to their madness by celebrating their selection.
+*Pete Carroll is proving why he didn’t make it in the NFL the first time. Not only was Bruce Irvin a reach at No. 15, the Seahawks proved they were oblivious to their madness by celebrating their selection.*
 
-> As if the day wasn’t bad enough, Seattle selecting Russell Wilson, a QB that doesn’t fit their offense at all, was by far the worst move of the draft. With the two worst moves of the draft, Seattle is the only team that received an F on draft day.
+*As if the day wasn’t bad enough, Seattle selecting Russell Wilson, a QB that doesn’t fit their offense at all, was by far the worst move of the draft. With the two worst moves of the draft, Seattle is the only team that received an F on draft day.*
 
 Fastforward to 2014. Seahawks are Super Bowl XLVIII Champions, Russell Wilson is 28-9 in first two years in the NFL, and Bruce Irvin is a part of the [#1 defense](http://espn.go.com/nfl/statistics/team/_/stat/total/position/defense) in the league. Led by a quarterback that many said wouldn't make it in the NFL and a number of [undrafted free agents](http://en.wikipedia.org/wiki/Undrafted_free_agent#Undrafted_free_agent), the Seahawks proved that there is more to succeeding then attracting the best talent out there. Coaches, general managers, and owners that are able to spot the untapped potential and drive in a lot of the younger athletes, are able to acquire extremely hungry and motivated players, which play to the advantages of both parties. 
 
