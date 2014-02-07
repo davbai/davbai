@@ -1,3 +1,8 @@
+---
+layout: post
+title:  "On Building a Team"
+---
+
 Daniel Wood, [The Bleacher Report](http://bleacherreport.com/articles/1165320-2012-nfl-draft-grades-power-ranking-teams-that-failed-on-draft-day) (2012):
 
 > After one of the worst picks in the first round I can ever remember, the Seattle Seahawks didn't draft any positions of need or draft for the future.
